@@ -1,2 +1,3 @@
 # Eko-Paryaj
-jwe trankil .touche rapid
+jwe tranki l 
+touche trankil
